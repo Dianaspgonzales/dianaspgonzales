@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil Dianaspgonzales😁
+## Bem-vindo(a) ao perfil Diana Gonzales😁
 
  <div>
    <a href="https://github.com/dianaspgonzales">
